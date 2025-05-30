@@ -74,4 +74,60 @@ Escucha tu cuerpo:
 Si sientes dolor, mareo o dificultad respiratoria intensa, detén la 
 actividad y consulta a un profesional de la salud.
 
+## Precausiones y Consejos
+
+Consejos:
+Comienza poco a poco:
+Si eres principiante, inicia con sesiones cortas e intensidad moderada. 
+Aumenta el tiempo y la intensidad progresivamente para evitar sobrecargas.
+
+Establece una rutina:
+Planifica tus sesiones semanales de cardio para mantener constancia y ver 
+resultados sostenibles en el tiempo.
+
+Escoge ropa y calzado adecuados:
+Usa ropa cómoda y transpirable, y asegúrate de usar calzado deportivo que 
+amortigüe bien y se adapte a la actividad (correr, saltar, bicicleta, 
+etc.).
+
+Varía los ejercicios:
+Alternar diferentes tipos de cardio (caminar, nadar, bailar, bicicleta) 
+evita el aburrimiento y trabaja distintos grupos musculares.
+
+Mantén una buena hidratación y alimentación:
+Hidrátate bien antes, durante y después del ejercicio. También es 
+importante tener una alimentación balanceada que respalde tu gasto 
+energético.
+
+Escucha música motivadora o entrena con alguien:
+Esto puede hacer que la actividad sea más entretenida y mantener tu 
+motivación alta.
+
+️Precauciones:
+No te excedas:
+Hacer ejercicio en exceso o sin descansar adecuadamente puede llevar a 
+fatiga crónica, lesiones o pérdida de masa muscular.
+
+Evita entrenar si estás enfermo o lesionado:
+Escucha a tu cuerpo. Entrenar en mal estado puede empeorar tu condición y 
+retrasar la recuperación.
+
+Cuidado con el clima:
+Si haces cardio al aire libre, evita las horas de calor intenso o frío 
+extremo. Usa protección solar si es necesario.
+
+Consulta con un profesional si tienes condiciones médicas:
+Personas con problemas cardíacos, hipertensión, obesidad o cualquier 
+condición médica deben tener orientación profesional antes de comenzar una 
+rutina de cardio.
+
+Controla tu frecuencia cardíaca:
+Evita llegar a un nivel de intensidad donde no puedas hablar ni respirar 
+con normalidad. Usar un pulsómetro puede ayudarte a entrenar de forma más 
+segura.
+
+Haz estiramientos después de entrenar:
+Esto ayuda a reducir la tensión muscular, mejorar la flexibilidad y 
+prevenir lesiones.
+
 
