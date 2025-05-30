@@ -21,3 +21,19 @@ Fomenta el trabajo en equipo, la motivación y la superación personal.
 Promueve un acondicionamiento físico completo y funcional.
 
 
+## Instrucciones para Practicar CrossFit
+Comienza con una buena entrada en calor que incluya movilidad articular y 
+cardio suave.
+
+Aprende la técnica de los movimientos básicos: sentadillas, 
+levantamientos, push-ups, burpees, etc.
+
+Realiza el WOD adaptado a tu nivel, con el peso y repeticiones adecuados.
+
+Ejecuta los ejercicios con intensidad pero con técnica correcta.
+
+Controla tu ritmo y escucha a tu cuerpo.
+
+Finaliza con ejercicios de movilidad y estiramiento.
+
+Lleva registro de tu progreso para ver tu evolución.
