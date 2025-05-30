@@ -100,3 +100,68 @@ Escucha a tu Cuerpo:
 Si sientes dolor, mareos o molestias inusuales, detente y evalúa la 
 situación. Es importante no forzar el cuerpo más allá de sus límites y, de 
 ser necesario, consultar a un profesional de la salud.
+
+## Consejos y Precauciones para el Entrenamiento de Fuerza
+
+Consejos:
+Empieza con el peso corporal si eres principiante:
+Ejercicios como sentadillas, flexiones y planchas son excelentes para 
+comenzar sin necesidad de equipos.
+
+Domina la técnica antes de añadir peso:
+Asegúrate de aprender y practicar la forma correcta de cada ejercicio 
+antes de aumentar la carga. La buena técnica previene lesiones y mejora 
+resultados.
+
+Entrena todos los grupos musculares:
+Diseña una rutina equilibrada que incluya piernas, espalda, pecho, brazos 
+y abdomen. Evita enfocarte solo en una zona.
+
+Descansa lo suficiente entre sesiones:
+Deja al menos 48 horas de recuperación antes de volver a entrenar el mismo 
+grupo muscular.
+
+Lleva un registro de tu progreso:
+Anota los ejercicios, pesos y repeticiones para seguir tu evolución y 
+saber cuándo aumentar la carga.
+
+Aumenta progresivamente la intensidad:
+Aplica el principio de sobrecarga progresiva: sube el peso o repeticiones 
+de manera gradual para seguir desafiando a tus músculos.
+
+Usa un espejo o graba tus entrenamientos:
+Esto te permite verificar tu postura y corregir errores en tiempo real.
+
+Incluye variedad en tu rutina:
+Cambia los ejercicios cada 4-6 semanas para evitar estancamientos y 
+mantener la motivación.
+
+Precauciones:
+No entrenes con fatiga extrema o dolor:
+Si estás muy cansado o sientes dolor en articulaciones o músculos, 
+descansa o consulta con un profesional.
+
+Evita usar pesos excesivos sin supervisión:
+Cargar más de lo debido puede provocar lesiones graves. Si haces 
+ejercicios pesados, utiliza siempre un observador o "spotter".
+
+Calienta y estira adecuadamente:
+El calentamiento reduce el riesgo de lesiones. Los estiramientos 
+post-entrenamiento mejoran la flexibilidad y la recuperación.
+
+Mantén una buena postura en todo momento:
+Una técnica incorrecta puede causar lesiones en espalda, rodillas, hombros 
+u otras áreas sensibles.
+
+No contengas la respiración:
+Usa la respiración a tu favor: exhala al hacer el esfuerzo e inhala al 
+volver a la posición inicial. Contener la respiración puede elevar 
+peligrosamente la presión arterial.
+
+Consulta a un profesional si tienes alguna condición médica:
+Personas con problemas cardíacos, articulares o metabólicos deben entrenar 
+bajo supervisión especializada.
+
+Usa el equipo adecuado:
+Asegúrate de que las máquinas estén en buen estado, que las pesas estén 
+bien colocadas y que uses calzado deportivo con buena sujeción.
