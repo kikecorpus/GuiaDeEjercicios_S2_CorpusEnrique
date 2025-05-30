@@ -34,3 +34,27 @@ Hidrátate durante el ejercicio, especialmente si es prolongado.
 Enfría al final pedaleando suave y estirando los músculos trabajados.
 
 Usa ropa cómoda y calzado adecuado.
+
+## Consejos y Precauciones
+Consejos:
+
+Si vas a rodar al aire libre, respeta las normas de tránsito y utiliza 
+casco.
+
+Aumenta la intensidad y duración progresivamente.
+
+Revisa regularmente tu bicicleta (frenos, llantas, cadena).
+
+Alterna sesiones largas con entrenamientos por intervalos para mejorar 
+rendimiento.
+
+Precauciones:
+
+Evita superficies peligrosas o con mal clima si vas al exterior.
+
+No sobreexijas tus rodillas ni adoptes posturas incómodas.
+
+Detente si sientes dolor lumbar, de rodilla o adormecimiento.
+
+Consulta a un médico si tienes problemas cardiovasculares antes de 
+comenzar.
