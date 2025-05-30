@@ -19,3 +19,22 @@ Es ideal para personas con lesiones o problemas articulares.
 Mejora la postura y la movilidad general.
 
 
+## Instrucciones para Practicar Natación
+Escoge un estilo de nado adecuado a tu nivel (comienza con crol o espalda 
+si eres principiante).
+
+Calienta fuera del agua con movilidad articular y dentro del agua con nado 
+suave.
+
+Enfócate en la técnica antes que en la velocidad.
+
+Controla tu respiración: inhala fuera del agua y exhala completamente 
+dentro.
+
+Nada por intervalos para mejorar resistencia y técnica.
+
+Finaliza con nado suave y estiramientos fuera del agua.
+
+Usa gafas y gorro para mayor comodidad.
+
+
