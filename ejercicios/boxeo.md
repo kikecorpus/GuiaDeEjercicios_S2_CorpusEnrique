@@ -18,3 +18,20 @@ Libera el estrés y mejora el estado de ánimo.
 Quema muchas calorías y favorece la pérdida de grasa.
 
 Potencia la confianza y la disciplina personal.
+
+## Instrucciones para Practicar Boxeo
+Comienza con un calentamiento activo (saltos, movilidad, sombra).
+
+Aprende la técnica básica: guardia, desplazamientos, jab, cross, uppercut, 
+hook.
+
+Practica al principio sin contacto, con ejercicios de sombra o saco de 
+boxeo.
+
+Usa intervalos de 2-3 minutos de golpeo, combinados con descansos activos.
+
+Trabaja también la defensa y la agilidad con desplazamientos laterales.
+
+Incluye trabajo de core y fuerza complementaria.
+
+Finaliza con estiramientos y ejercicios de relajación.
