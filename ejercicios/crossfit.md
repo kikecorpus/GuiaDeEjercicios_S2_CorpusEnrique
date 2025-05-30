@@ -37,3 +37,28 @@ Controla tu ritmo y escucha a tu cuerpo.
 Finaliza con ejercicios de movilidad y estiramiento.
 
 Lleva registro de tu progreso para ver tu evolución.
+
+## Consejos y Precauciones
+Consejos:
+
+Entrena en un box certificado o con instructores calificados.
+
+Enfócate en la técnica antes de cargar peso.
+
+Usa calzado con buena base y ropa transpirable.
+
+Hidrátate antes, durante y después del entrenamiento.
+
+Precauciones:
+
+No te exijas más allá de tus límites físicos reales.
+
+Evita compararte con otros: cada quien tiene su proceso.
+
+Si tienes lesiones previas, adapta los ejercicios o consulta con un 
+especialista.
+
+Descansa adecuadamente entre sesiones intensas para evitar 
+sobreentrenamiento.
+
+
