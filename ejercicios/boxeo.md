@@ -35,3 +35,25 @@ Trabaja también la defensa y la agilidad con desplazamientos laterales.
 Incluye trabajo de core y fuerza complementaria.
 
 Finaliza con estiramientos y ejercicios de relajación.
+
+## Consejos y Precauciones
+Consejos:
+
+Utiliza guantes, vendas y calzado deportivo adecuado.
+
+Aprende la técnica de un profesional antes de aumentar la intensidad.
+
+Coordina los golpes con la respiración.
+
+Complementa con trabajo de piernas y zona media.
+
+Precauciones:
+
+Evita el contacto físico sin supervisión y protección.
+
+Si tienes problemas de hombros o muñecas, adapta los ejercicios.
+
+No descuides el calentamiento, ya que los movimientos son explosivos.
+
+Consulta al médico si tienes problemas cardíacos o articulares antes de 
+comenzar.
