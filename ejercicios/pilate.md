@@ -20,3 +20,19 @@ Mejora la concentración, coordinación y equilibrio.
 Favorece una respiración más consciente y eficiente.
 
 
+## Instrucciones para Practicar Pilates
+Elige un entorno tranquilo y sin distracciones.
+
+Inicia con una activación del core y ejercicios de respiración costal.
+
+Realiza los movimientos con precisión, control y fluidez.
+
+Concéntrate en la calidad, no en la cantidad. Realiza entre 6 y 12 
+repeticiones por ejercicio.
+
+Mantén el abdomen activo y la columna alineada durante toda la práctica.
+
+Coordina el movimiento con la respiración: inhala para prepararte y exhala 
+durante el esfuerzo.
+
+Finaliza con estiramientos suaves y relajación.
