@@ -38,3 +38,24 @@ Finaliza con nado suave y estiramientos fuera del agua.
 Usa gafas y gorro para mayor comodidad.
 
 
+## Consejos y Precauciones
+Consejos:
+
+Asiste a clases si no dominas bien los estilos.
+
+Mantén una buena hidratación, incluso dentro del agua.
+
+Alterna estilos para trabajar distintos músculos y evitar sobrecargas.
+
+Usa sandalias en zonas húmedas para evitar hongos.
+
+Precauciones:
+
+No nades solo si no eres un nadador experimentado.
+
+Evita nadar después de comer en exceso.
+
+Si sientes fatiga o calambres, sal del agua de inmediato.
+
+Ten precaución con las profundidades y las corrientes en espacios 
+abiertos.
