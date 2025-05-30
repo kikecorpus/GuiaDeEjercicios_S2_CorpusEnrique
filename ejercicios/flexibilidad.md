@@ -19,3 +19,24 @@ Favorece una mejor postura corporal.
 Facilita la recuperación tras el ejercicio.
 
 Aumenta la relajación y reduce el estrés.
+
+## Instrucciones para Realizar Ejercicios de Flexibilidad
+Realiza un calentamiento ligero antes de estirar (5-10 minutos de cardio 
+suave).
+
+Elige estiramientos adecuados para los grupos musculares que deseas 
+trabajar.
+
+Mantén cada estiramiento estático durante 20-30 segundos sin rebotes.
+
+Realiza estiramientos dinámicos como movimientos controlados al inicio de 
+la actividad.
+
+Respira profunda y constantemente durante el estiramiento.
+
+Evita forzar o sentir dolor; solo debe notarse una tensión suave.
+
+Realiza ejercicios de flexibilidad al menos 3 veces por semana para 
+mejores resultados.
+
+
