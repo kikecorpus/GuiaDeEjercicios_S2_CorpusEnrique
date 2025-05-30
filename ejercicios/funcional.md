@@ -19,4 +19,21 @@ Potencia el rendimiento en actividades diarias o deportivas.
 
 Puede adaptarse a todos los niveles y edades.
 
+## Instrucciones para Realizar Entrenamiento Funcional
+Calienta antes de comenzar (movilidad, activación muscular y cardio 
+ligero).
 
+Elige ejercicios multiarticulares, como sentadillas, zancadas, empujes, 
+tracciones, saltos o rotaciones.
+
+Trabaja con el peso corporal o implementos como bandas, balones, pesas 
+rusas o TRX.
+
+Enfócate en la técnica y el control del movimiento, más que en la carga.
+
+Organiza tu sesión en circuitos o intervalos de 30-60 segundos por 
+ejercicio.
+
+Combina fuerza, equilibrio y cardio en una misma sesión.
+
+Finaliza con una vuelta a la calma y estiramientos.
