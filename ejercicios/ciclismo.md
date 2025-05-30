@@ -19,3 +19,18 @@ Es de bajo impacto para las articulaciones.
 Mejora el equilibrio, la coordinación y la resistencia muscular.
 
 
+## Instrucciones para Practicar Ciclismo
+Elige la modalidad (ruta, montaña o estática) según tu nivel y objetivo.
+
+Ajusta correctamente el sillín y el manillar para evitar molestias y 
+lesiones.
+
+Calienta pedaleando suavemente durante 5-10 minutos.
+
+Mantén una cadencia constante (rpm) y controla tu respiración.
+
+Hidrátate durante el ejercicio, especialmente si es prolongado.
+
+Enfría al final pedaleando suave y estirando los músculos trabajados.
+
+Usa ropa cómoda y calzado adecuado.
