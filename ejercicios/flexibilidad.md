@@ -40,3 +40,26 @@ Realiza ejercicios de flexibilidad al menos 3 veces por semana para
 mejores resultados.
 
 
+## Consejos y Precauciones para Ejercicios de Flexibilidad
+Consejos:
+
+Incorpora flexibilidad dentro de tu rutina regular, preferiblemente 
+después del calentamiento o al final del entrenamiento.
+
+Varía los estiramientos para trabajar todas las principales zonas 
+musculares.
+
+Sé constante y paciente; la mejora de la flexibilidad es gradual.
+
+Precauciones:
+
+No estires músculos fríos para evitar lesiones.
+
+Evita rebotes o movimientos bruscos al estirar.
+
+No sobrepases tu límite de comodidad para prevenir daños musculares.
+
+Consulta a un especialista si tienes lesiones previas o condiciones 
+articulares.
+
+
