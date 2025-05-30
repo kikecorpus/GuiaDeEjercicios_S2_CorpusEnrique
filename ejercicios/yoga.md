@@ -37,3 +37,29 @@ integrar los beneficios de la práctica.
 
 Sé constante: incluso 10-15 minutos diarios pueden generar cambios 
 positivos.
+
+## Consejos y Precauciones
+Consejos:
+
+Usa ropa cómoda y una esterilla antideslizante.
+
+Practica en ayunas o al menos dos horas después de comer.
+
+Adapta las posturas a tu nivel; usa bloques, correas o cojines si es 
+necesario.
+
+Sé paciente con tu progreso; la flexibilidad y el equilibrio mejoran con 
+la práctica constante.
+
+Precauciones:
+
+Evita posturas exigentes si tienes lesiones, hipertensión o problemas 
+articulares.
+
+No te compares con otros; cada cuerpo tiene un ritmo diferente.
+
+Consulta con un profesional si estás embarazada o tienes condiciones 
+médicas.
+
+Detente si sientes mareo, dolor agudo o molestias respiratorias.
+
